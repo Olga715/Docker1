@@ -1,1 +1,1 @@
-![image](https://skr.sh/sMeHmCE8yRR)
+![img_2.png](img_2.png)
